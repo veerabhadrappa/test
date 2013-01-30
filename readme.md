@@ -1,3 +1,2 @@
-wats up?
-how r u?
+wats up?how r u?
 wat r u doing
